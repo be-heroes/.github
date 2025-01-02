@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+Follow me at Medium @ https://medium.com/@ZaradarTR
+
 <!--
 
 **Here are some ideas to get you started:**
