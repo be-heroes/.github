@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Follow me at Medium @ https://medium.com/@ZaradarTR
+Follow at Medium @ https://medium.com/@ZaradarTR
 
 <!--
 
